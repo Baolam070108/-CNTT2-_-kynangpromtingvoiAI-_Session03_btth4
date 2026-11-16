@@ -1,6 +1,6 @@
 Kính gửi Thầy/Cô,
 
-Em là Nguyễn Văn A, đại diện nhóm sinh viên thực hiện bài tập nhóm của môn học.
+Em là Cao Bảo Lâm, đại diện nhóm sinh viên thực hiện bài tập nhóm của môn học.
 
 Trước hết, nhóm em xin cảm ơn Thầy/Cô đã hướng dẫn và hỗ trợ nhóm trong quá trình thực hiện bài tập.
 
@@ -14,4 +14,4 @@ Em xin chân thành cảm ơn!
 
 Trân trọng,
 
-**Nguyễn Văn A**
+**Cao Bảo Lâm**
